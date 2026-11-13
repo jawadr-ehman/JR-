@@ -1,4 +1,4 @@
-# JR★¹★ — Jawad Rehman
+# Jawad Rehman
 
 🚀 **Freelancer — Turning Influencers into Customers & Leads into Revenue**
 
